@@ -1,3 +1,3 @@
 # SAiNT
 
-Created by @SShtml
+Created by https://t.me/sshtml
